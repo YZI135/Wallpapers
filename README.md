@@ -1,2 +1,3 @@
 # Wallpapers 
-All photos was made by me
+My wallpapers collection
+
